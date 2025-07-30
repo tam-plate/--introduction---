@@ -1,2 +1,3 @@
-# --introduction---
-hi am Tamiko // Ann
+# --Introductions--
+
+i like drawing 
