@@ -1,6 +1,7 @@
   -- 𝙄𝙣𝙩𝙧𝙤𝙙𝙪𝙘𝙩𝙞𝙤𝙣 --
 
-https://github.com/user-attachments/assets/40b58b09-72d8-444d-8956-01161232b2fd
+<img width="500" height="478" alt="IMG_0464" src="https://github.com/user-attachments/assets/65bd32f8-1866-4b65-bceb-f656788bbfb3" />
+
  
 𝘏𝘦𝘭𝘭𝘰, 𝘮𝘺 𝘯𝘢𝘮𝘦 𝘪𝘴 𝘛𝘢𝘮𝘪𝘬𝘰, 𝘰𝘳 𝘈𝘯𝘯.
 
